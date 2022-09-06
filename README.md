@@ -1,2 +1,3 @@
 # perfil da artista taylor swift 
-![Capturar (1)](https://media.discordapp.net/attachments/940637232912531500/942193244912115712/1644706751111.jpg) 
+![image](https://user-images.githubusercontent.com/72636308/188651090-8c6a2463-cee9-46db-91a6-738283439023.png)
+ 
